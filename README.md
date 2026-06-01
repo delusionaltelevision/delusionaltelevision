@@ -1,16 +1,29 @@
-## Hi there 👋
+## 🦢﹕𐔌・WELCOME !! 〃・꒱
 
-<!--
-**delusionaltelevision/delusionaltelevision** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⌣🚿﹒Name: Rephyn/ Rephy
+⌗⋮📣⸝⸝ Gender: Male
+◡◡🧁﹒Sexuality: Gay
+🍡🖇╱- Relationship Status: Single
+
+
+
+## ❀﹒📈﹒SOCAILS ﹒⊹
+
+
+🧊⋆˚࿔- Discord: cutteii
+⌗- Tiktok: th3vi0l3t_v1p3r -🎐
+🥨⌗•- Twitch: rephyngaming
+
+
+
+## 🦪︵- EXTRA INFO ◌ⳋ𝅄
+
+
+🐶- I have a black and white cat called Betsy -ᐟ₊꒱
+⌗ㆍノI'm finally getting back into Hazbin Hotel and Helluva Boss Again -❛🎭❛
+→﹐-🐴﹒- Finally Playing PonyTown Again After Ages -﹒⟢
+↳-📞-⌗﹒˙- Feel Free to DM or Friend me on Discord I'd Most Likely Accept :D
+
+
